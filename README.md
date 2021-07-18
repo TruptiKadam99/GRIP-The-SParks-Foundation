@@ -1,1 +1,1 @@
-# GRIP-The-SParks-Foundation - July 2021
+# GRIP-The-Sparks-Foundation - July 2021
